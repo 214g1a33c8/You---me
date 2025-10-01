@@ -337,4 +337,9 @@ Edhi naa life
 
 
 
-Natho untava 🥺
+Natho untava 
+
+
+
+naa life long 
+nee kalla deggarey unta
