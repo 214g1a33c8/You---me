@@ -176,6 +176,27 @@ Enjoy cheddam tirugudham
 
 
 
+
+
+ila enni days chesthav ante cheppalenu 
+life antha ilagey untava ante cheppalenu 
+
+
+but neku periods unnappudu 
+neku health balennappudu 
+every week Saturday and Sunday 
+
+nennu kanti papa la chusukunta
+
+
+
+
+
+
+
+
+
+
 Nee birthday ki yesterday wish cheyyaledhu 
 Night 12 ki cheppaledhu 
 
