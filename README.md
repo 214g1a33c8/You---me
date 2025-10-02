@@ -343,3 +343,19 @@ Natho untava
 
 naa life long 
 nee kalla deggarey unta
+
+
+
+
+neku naa medha eppudu kopam vacchina 
+
+room loki velli lock vesuko 
+room bayata nennu bangapothuney unta 
+nuvvu convince ayye varuku door kuda tiyyaku 
+
+
+sare naa
+
+
+nee kopam thaggey varuku tittu kottu 
+sampeyyi nannu
